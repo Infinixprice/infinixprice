@@ -1,16 +1,32 @@
-## Hi there 👋
+# 📱 InfinixPrice.com — Your Trusted Source for Infinix Mobiles in Pakistan
 
-<!--
-**Infinixprice/infinixprice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Welcome to the official GitHub repository for **InfinixPrice.com** — Pakistan’s dedicated website for the latest Infinix mobile prices, full specifications, reviews, comparisons, and buying guides.
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 🔗 Visit Our Website
+
+👉 [Infinix Hot 60i Price in Pakistan](https://infinixprice.com/infinix-hot-60i-price-in-pakistan/)  
+👉 [InfinixPrice.com — Home](https://infinixprice.com/)
+
+---
+
+## 📌 What We Offer
+
+- ✅ Latest & Official Infinix Mobile Prices
+- ✅ Full Specs, Reviews, & Buyer Guides
+- ✅ Honest Comparisons with Other Brands
+- ✅ PTA Registration Help
+- ✅ Tips for Mobile Buyers in Pakistan
+
+---
+
+## 🤝 Connect With Us
+
+If you have suggestions, collaboration ideas, or want to contribute, feel free to get in touch through our website.
+
+**Visit Now:** [https://infinixprice.com/](https://infinixprice.com/)
+
+---
+
+**© 2025 InfinixPrice.com — All Rights Reserved**
